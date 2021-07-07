@@ -1,0 +1,1 @@
+Gostei bastante, aprender uma nova ferramenta é sempre desafiador mas ao mesmo tempo reconfortante.
